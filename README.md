@@ -14,4 +14,5 @@ By writing this blog, I hope to at least, make hearts smile and hopefully change
 Life is worth living, my dear friend, and I want you to know that if you're going through difficult times, you are not alone. I want to be there with you. I want to be there for you. I want my blog to give you what you need to overcome your situation. No one deserves to be sad. And no one definitely deserves to be sad alone. 
 Thank you so much for reading the longest intro in the world. I really appreciate you sticking with me for the last 200 words. Hope you enjoy my blog! :) All the best, have a wonderful day and take care xx
 OH WAIT! 
+
 My name's Claire btw. 
